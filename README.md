@@ -1,6 +1,9 @@
-<img src="https://komarev.com/ghpvc/?username=dsm6&label=visitors&style=plastic">
-idk how to add images <br>
--16 dni if you're over that it's free range<br> 
-u can always whisper me or start up a conversation i'm typically offtab<br>
-apparently ata is hip and cool now so send me something if you want <br>
-cuddles always appreciated \(^ _ ^)/ i'm an online socialite so don't be afraid to come say hi! <br>yes my Skins are bad. you see i Live on a Little mountain ⛰️ and this is the first time in my life i was Allowed internet access. Be Nice!</center>
+<p align=center> <br> 
+  <img src="https://komarev.com/ghpvc/?username=dsm6&label=𐂂&style=plastic"> <br>
+  <img height="300" src="https://i.ibb.co/fGQRHcsp/128510255-w-VRo-Udd-L4bg-Nm8-C.png" alt="128510255-w-VRo-Udd-L4bg-Nm8-C" border="0" /></a>
+<br>
+<b>jamie</b> any prn ~ 18
+<br>
+w2i always & w+h encouraged <i>Smiles</i> bmf <br>
+<br>yes my Skins are bad. you see i Live on a Little mountain ⛰️ 
+<br>& this is the first time in my life i was Allowed internet access. Be Nice!</center>
