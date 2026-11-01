@@ -6,4 +6,4 @@
 <br>
 w2i always & w+h encouraged <i>Smiles</i> bmf <br>
 <br>yes my Skins are bad. you see i Live on a Little mountain ⛰️ 
-<br>& this is the first time in my life i was Allowed internet access. Be Nice!</center>
+<br>& this is the first time in my life i've been Allowed internet access. Be Nice!</center>
