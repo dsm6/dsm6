@@ -7,3 +7,6 @@
 w2i always & w+h encouraged <i>Smiles</i> bmf <br>
 <br>yes my Skins are bad. you see i Live on a Little mountain ⛰️ 
 <br>& this is the first time in my life i've been Allowed internet access. Be Nice! <br><br>most of my skins r ocs so pls don't compare them to preexisting characters<br>tysm :') remember that i ❤️‍🩹 You!</center>
+<details>
+ <p align=center> <img width="400" src="https://i.ibb.co/nMBhX8fF/IMG-1156.png" alt="IMG-1156" border="0" /><img width="400"src="https://i.ibb.co/TDrnZjF6/IMG-1152.png" alt="IMG-1152" border="0" /></a></a>
+</details>
