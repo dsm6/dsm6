@@ -1,5 +1,5 @@
 <p align=center> <br> 
-  <img src="https://komarev.com/ghpvc/?username=dsm6&label=𐂂&style=plastic"> <br> <img src="https://i.ibb.co/Pv9XXR09/Screenshot-2026-11-02-194848.png" alt="Screenshot-2026-11-02-194848" border="0" /></a> <br>
+  <img src="https://komarev.com/ghpvc/?username=dsm6&label=𐂂&style=for-the-badge"> <br> <img src="https://i.ibb.co/Pv9XXR09/Screenshot-2026-11-02-194848.png" alt="Screenshot-2026-11-02-194848" border="0" /></a> <br>
   <img height="300" src="https://i.ibb.co/fGQRHcsp/128510255-w-VRo-Udd-L4bg-Nm8-C.png" alt="128510255-w-VRo-Udd-L4bg-Nm8-C" border="0" /></a>
 <br>
 <b>jamie</b> any prn ~ 18
