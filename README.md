@@ -6,6 +6,3 @@
 <br>
 w2i always & w+h encouraged <i>Smiles</i> bmf <br>
 <a href="https://dsm5.atabook.org/">新book</a> <a href="https://fluffle.cc/futchizier">?</a> <br>
-<br> <details>
- <p align=center> <img width="400" src="https://i.ibb.co/HpHTYx5K/IMG-1160.png" alt="IMG-1156" border="0" /><img width="400"src="https://i.ibb.co/RpXvjt1r/IMG-1162.png" alt="IMG-1152" border="0" />  <br> all art by @wolfacrobat is mine <br> <img src="https://i.ibb.co/C5GQhm4b/IMG-1762.jpg" alt="IMG-1762" border="0" /></a></a></a></details>
-
