@@ -5,4 +5,4 @@
 <b>jamie</b> /<a href="https://pronouns.cc/@tatsumi/jamie">any</a> ~ 1<b>8</b>
 <br>
 w2i always & w+h encouraged <i>Smiles</i> bmf <br>
-<a href="https://dsm5.atabook.org/">新book</a> <a href="https://rentry.co/futchizier">?</a> <br>
+<a href="https://dsm5.atabook.org/">新book</a> <a href="https://rentry.co/futchizier">?</a> <br> <img src="https://i.ibb.co/B2dtS6rQ/Untitled.png" alt="Untitled" border="0" /></a>
