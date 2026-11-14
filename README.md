@@ -1,5 +1,5 @@
 <p align=center>
-  <img src="https://komarev.com/ghpvc/?username=dsm6&label=licks+given&style=for-the-badge">
+  <img src="https://komarev.com/ghpvc/?username=dsm6&color=000000&label=❤︎⁠&style=plastic">
 <br>
 <b>jamie</b> /<a href="https://pronouns.cc/@tatsumi/jamie">any</a> ~ 1<b>8</b>
 <br>
